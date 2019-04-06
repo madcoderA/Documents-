@@ -1,2 +1,6 @@
 # Documents-
-It is my necessary documents stock for uses and research..
+It is my necessary documents stock for uses and research.
+.
+.
+.
+আমি একজন সাধারণ মানুষ। নিজের সম্পর্কে বলার মতো আপাতত তেমন কিছুই নেই। এমন কিছুই করিনি জীবনে এখনও। তবে, একটা সাধারণ মফস্বল শহরের কোনো এক রাস্তার একটু পাশেই ঘর; আমার বসত সেখানেই। এখনও অনেক কিছু জানি না, যত দেখছি কিছু শিখছি।
